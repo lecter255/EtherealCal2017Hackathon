@@ -1,1 +1,0 @@
-# EtherealCal2017Hackathon
